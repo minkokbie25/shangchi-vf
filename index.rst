@@ -78,4 +78,4 @@ Shang-Chi et la légende des dix anneaux streaming sans compte
 Shang-Chi et la légende des dix anneaux sortie france
 Shang-Chi et la légende des dix anneaux bande annonce vf
 Shang-Chi et la légende des dix anneaux acteurs
-Shang-Chi et la légende des dix anneaux synopsis
+Shang-Chi et la légende des dix anneaux synopsisd
